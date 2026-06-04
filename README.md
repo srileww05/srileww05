@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hey! Sri here ✨
 
 <!--
 **srileww05/srileww05** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,3 +14,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+I'm a communication designer and illustrator, exploring tech and the possibilities of vibe coding for fun! <br>
+reach out to me on ig: @cheapplasticfolderr
