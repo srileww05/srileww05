@@ -15,4 +15,5 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 I'm a communication designer and illustrator, exploring tech and the possibilities of vibe coding for fun! <br>
-reach out to me on ig: @cheapplasticfolderr
+reach out to me on ig: @cheapplasticfolderr<br>
+TVM↔️JBP
